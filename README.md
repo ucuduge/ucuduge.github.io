@@ -1,2 +1,0 @@
-# ucuduge.github.io
-ucuduge
